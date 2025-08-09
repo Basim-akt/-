@@ -5,7 +5,7 @@
 ## Basic Details
 ### Team Name: Wizards
 
-നിങ്ങൾ ഭാവിയിൽ മോട്ടയോ???🧑‍🦲
+
 ### Team Members
 - Team Lead: Mohammed savad M - GEC idukki
 - Member 2: Basim Areekatt - GEC idukki 
