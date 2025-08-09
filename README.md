@@ -1,9 +1,9 @@
 <img width="3188" height="1202" alt="frame (3)" src="https://github.com/user-attachments/assets/517ad8e9-ad22-457d-9538-a9e62d137cd(46bd060598e14bff257aea0eaebfb08a-1.jpg)
-# [Project Name] 🎯
+# നിങ്ങൾ ഭാവിയിൽ മോട്ടയോ???🧑‍🦲 🎯
 
 
 ## Basic Details
-### Team Name: [Name]
+### Team Name: Wizards
 
 നിങ്ങൾ ഭാവിയിൽ മോട്ടയോ???🧑‍🦲
 ### Team Members
